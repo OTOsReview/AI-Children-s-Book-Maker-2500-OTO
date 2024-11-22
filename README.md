@@ -6,7 +6,9 @@ AI Children's Book Maker 2500 OTO: All AI Childrens Book Maker 2500 OTO Links He
 
 ## ALL FIVE AI Children's Book Maker 2500 OTO LINKS BELOW
 
-It Is Mandatory to Get Front End Before Any OTO,<br> Can Get Any 1 or More OTOs Directly From Below If Already Got Front End!
+It Is Mandatory to Get Front End Before Any OTO, Can Get Any 1 or More OTOs Directly From Below If Already Got Front End!
+
+## Front End:
 
 [>>> AI Children's Book Maker 2500 FE](https://jvz8.com/c/1283999/413392/)
 
