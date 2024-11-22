@@ -342,3 +342,59 @@ Children's Book Club Organizers
 Nature Camp Organizers
 Kindergarten Assistants
 Anyone who loves storytelling
+
+## AI Children's Book Maker 2500 OTO - Frequently Asked Questions:
+
+- What exactly is the A.I. Children's Book Maker 2500?
+
+First, we encourage you to go watch the demo videos above on this page. Then you'll understand exactly what it is. To answer the question, it is a web-based dashboard application. You can login and access it from any computer or device. It enables you to create all the components of a children's book and put them together into a finished product (either an ebook or a print-ready book).
+
+- Why do I need the A.I. Children's Book Maker 2500 in addition to ChatGPT?
+
+Our dashboard is designed to enable you to get the most out of the ChatGPT engine, while saving you even more time and achieving even better results. Instead of coming up with prompts for everything, you will simply fill in some blanks in our dashboard, and our programming logic behind the scenes will interface with the AI engines to get the best results for you. Beyond that, we have created a step-by-step process with detailed instructions and tutorials. This is about SO much more than prompts. It took us a lot of trial and error to develop this method and turn it into a system that you can replicate again and again. We're talking about literally thousands of hours of development, plus you get to benefit from everything we learned from our customers of the first version creating thousands of books, and all the things we improved based on their experiences.
+
+- Is it easy to use?
+
+Yes. That's the whole point of it. We designed it so that anyone can use it, even if you have no experience with AI or even with creating content. All you have to do is fill in blanks and click the button.
+
+- Do I need to install this, and will it work on Mac and PC?
+
+You do not need to install anything, as it is web based. Just log in from any computer, including any Apple Mac or Windows PC.
+
+- Are there any upsells?
+
+We offer an upgrade to the Pro edition, which will be shown to you after completing your checkout from this page. It is not available publicly, and we're only offering it to those who grab the Commercial license from us on this page. It includes some great features, like the ability to generate full-length chapter books for older kids and youth. It also comes with several advanced illustration tools that open up more possibilities. The price is affordable, and we'll give you the details on the upgrade page, so you can make an educated decision for your business. And be rest-assured, the Commercial edition you're getting from this page is FULLY functional and will do everything you see on this page and in the demo videos. It's not like it's "missing" anything.
+
+- What is the Commercial License that I'm getting from this page?
+
+The Commercial License membership means you can use the A.I. Children's Book Maker 2500 for both personal and business purposes. You can use it for personal projects, business projects, and client projects. It also includes an Agency License, which is what allows you to use it for clients. You can get paid by clients for work that is done using the A.I. Children's Book Maker. You may not share or give your A.I. Children's Book Maker login to your clients, but you wouldn't want to do that anyway because then they would know your secret weapon ;-)
+
+- Can I find this for sale anywhere else?
+
+NO. Sadly, scammers have copied our sales page and marketing materials and are trying to imitate us. They even use pictures of Eric and his family, which is pretty low, don't you think? They've conned a lot of people into buying the software through their site, and then deliver nothing. Or they deliver the shared login credentials of one account, which always gets banned by us immediately. Some of the domains used by these SCAMMERS include WickedApps.com, childrensbookmaker.net, Zooreviews.net, IMtools.com, PLRmadness.net, Genuinebusinessdeals.com, Artificialintelligencegeek.com, Afftoolhub.com, Newrich.com, newrichapps.com, Hugeconversions.net, Traffictrainingzone.com. They use hundreds of names such as Newrich network, Andrew Hunter, Michael Travis, Steven Ramirez, Chris Jones, Larry Pace, Shaun Archer, Alex Wilson, and they are constantly coming up with new names. They also send out SPAM impersonating our names and brand names including AI Children's Book Maker and GPTDash. What they are doing is 100% illegal. They have cost us and our customers tens of thousands of dollars, and we believe these scammers will eventually be brought to justice.
+
+- Will my illustrations or books have any watermarks or branding on them?
+
+No. We added watermarks to a bunch of the illustrations on this page just to make it a little more difficult for the scammers who keep ripping off our sales page. Yours will not have any such thing.
+
+- Are there any additional costs from OpenAI/ChatGPT?
+
+As mentioned in the sales letter above, A.I. Children's Book Maker 2500 uses an API key from your own OpenAI account, which can be opened for free. If you've ever used ChatGPT, then you already have an account and you can grab your API key. We show you exactly where and how; it's SUPER EASY even if you have no experience! 
+
+It costs an average of about $0.001 for each use of a writing tool on A.I. Children's Book Maker 2500. That means on average it would cost about $1 for 1000 uses of A.I. Children's Book Maker, with the exception of images. Currently OpenAI's price for large images are about $0.02 (2 cents) each.
+
+In other words, even after your free trial, it will be ridiculously cheap and cost mere pennies to generate children's books with A.I. Children's Book Maker 2500. Note - You do NOT have to subscribe to ChatGPT Plus. The API access is separate, and it is pay-as-you-go so you literally only pay for what you use.
+
+Not sure about signing up? We are also including 100 GPTDash credits on our own API so you can login and try our dashboard immediately just to see how it works! That's enough to run about 100 writing tasks. See? Now you've really got no excuse not to try it. If you are in a restricted country or for some reason are unable to get your own OpenAI API key, we do have an option to pay to use ours. If you're in that situation, just contact us after signing up :-)
+
+- Do you have a money-back guarantee?
+
+Yes, we have a 30 day money-back guarantee. We're confident that you're going to love A.I. Children's Book Maker 2500, but if for any reason you're unhappy with it, you can easily request a full refund within 30 days.
+
+- What's different from the first version of A.I. Children's Book Maker?
+
+So much! The A.I. technology has continued to grow by leaps and bounds, and as a result we have spent thousands of hours integrating the newest technologies. The story-generation capabilities are much improved. The illustration capabilites are vastly improved, and we now have the ability to create consistent characters. We've added a built-in project library, and much more. We also made new tutorials that are truly "master class" level training that will take you through the entire process from "idea" all the way through publishing your book on Amazon. When we say the 2500 version is 100X more powerful than the first version, we really mean it. Yes the "100X" is an arbitrary estimate, but we feel it's a conservative estimate based on the real capabilities and improvements in the software.
+
+- Who are the people behind A.I. Children's Book Maker 2500?
+
+We are Eric Holmlund and Ryan Greene. Eric has been doing business online since 1999, full time since 2003. He has taught thousands of others how to build their online businesses. Also a writer and artist, he has infused his expertise into A.I. Children's Book Maker 2500. Ryan has spent his career in software development and law enforcement. He has been doing business online since 2015, in which he also coaches and trains others to make money online. He has infused a lifetime of technology-related expertise into A.I. Children's Book Maker 2500.
