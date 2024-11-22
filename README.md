@@ -151,3 +151,188 @@ Peer-to-peer support from other members who have been doing this for awhile.
 A place to announce your new book publications and launches.
 Fellow authors to review your books.
 Friends!
+
+## AI Children's Book Maker 2500 OTO - Benefits:
+
+- In case you were wondering, there are MANY ways to make money with children's books. Here are several ways to monetize this hot opportunity starting today:
+
+Most people think about "traditional publishing" methods when they think about authoring children's books. That's certainly one option. You can submit your books to publishers or literary agents, and if you're lucky, you might get your book accepted, in which case you could receive an advance and royalties. However, there are SO MANY MORE opportunities these days, and you don't have to get "lucky" to use them. In fact, in recent years many successful children's book authors are reporting that they're able to make a LOT MORE MONEY by not going the "traditional" route.
+
+## Here are just some of your options for making money with the children's books you create...
+
+## Self-publishing:
+
+This is the route that many of the most successful and highly paid authors are using today. You can publish your book independently through platforms like Amazon Kindle Direct Publishing (KDP) or IngramSpark. With this option, you get to keep a MUCH larger share of your profits compared to a traditional book publisher. This option can also utilize both printed books, and digital ebooks.
+
+While royalties in traditional publishing are usually in the 5%-15% range, authors who choose self-publishing often earn as much as 70% or more!
+
+## Print on demand (POD):
+
+You can use POD services like Amazon KDP Print or Lulu to print your book on demand. This is a great option if you want to sell your book as a printed physical book, but don't want to spend a lot of money having a big batch printed. In past times, it required a big investment to see your book in print. Today, you can order as few as one copy, and customers can order them on-demand without you ever keeping any inventory!
+
+It's a great hands-free business model. You can spend your time having fun and creating more books, and not worry about printing or fulfilling orders. In the old days, you would have a garage full of books. Today, Print on Demand is a better option.
+
+## Ebooks:
+
+My wife is an avid reader of books, finishing several every month. She likes to feel a book in her hands, so she was a late adopter of ebook technology, but I recently got her an Amazon Kindle Paperwhite, and she loves it. She can bring unlimited books with her everywhere she goes, and to sweeten the deal it's waterproof, so she can read anywhere!
+
+With ebooks being one of the most popular ways books are distributed, it means you can sell digital versions of your book through online retailers like Amazon, Apple iBooks, and Barnes & Noble.
+
+Of course you can also sell ebooks from your own website. It's as simple as saving it as a PDF file so your customers can download it. I have literally sold millions of dollars of ebooks from my own websites over the years.
+
+## Audiobooks:
+
+As if my wife doesn't already consume enough books, she also subscribes to audiobooks, so she can absorb them while she's out running or driving. You can easily create and sell audiobook versions of your children's book on platforms like Audible, iTunes, or Google Play.
+
+You might be thinking, what about the pictures? Trust me, parents still buy them. My wife plays children's books for our youngest one while in the car.
+
+## Licensing and merchandising:
+
+If you walk through the toy section of a department store, you'll notice that a lot of the toys are inspired directly from children's books. You can license your book or characters for use in products like toys, clothing, or games. Perhaps better yet, you create and sell your OWN merchandise featuring your book's characters or artwork.
+
+Sounds difficult? It's really not. Back in the old days, you'd have to figure out a manufacturing deal and invest a bunch of money up-front. Just like Print on Demand for books, there are many Print on Demand sites for ALL kinds of merchandise ranging from mugs, to calendars, to clothing. Some of them include Zazzle, Redbubble, Cafepress, Teespring, Printful, and a TON of others! All you have to do is set up your account and upload your artwork with no upfront cost.
+
+A small example... In 2012 I uploaded a picture to Zazzle of a small painting I did of a Christmas tree, and I've been earning royalties on it every year since, especially around Christmas time. Just last year, someone ordered 150 greeting cards of it.
+
+## Other languages:
+
+You can translate and publish your book in any language. You could also license the rights to your book for translation and distribution in other countries, earning royalties from international sales. How many countries and languages can you think of? Yes, all of those people need children's books!
+
+## Public speaking and workshops:
+
+As a children's book author, you can offer presentations, workshops, or classes related to children's literature or the themes of your book at schools, libraries, and literary events. Sounds FUN, right? Maybe it's not for everyone, but I think it sounds fun. You can also use your children's book as an "in" to gain credibility and trust for your other businesses and niches.
+
+## Grants and awards:
+
+There are many grants, fellowships, and awards that support children's authors and illustrators. In other words, there is FREE MONEY that is available because there are a lot of organizations out there who believe children's literature is an important part of our society. By grabbing the A.I. Children's Book Maker, you can quickly establish yourself as a children's book author and start applying for these grants and awards.
+
+## Patreon or crowdfunding:
+
+Raise funds for your project and/or build a community of supporters through platforms like Patreon, Kickstarter, or Indiegogo. Using crowdfunding, you can turn your book into a best-seller before you even launch it. And using a fan subsciption service like Patreon or Buy Me a Coffee is a way to turn this into a recurring monthly income to keep creating content (such as children's books).
+
+## Freelance writing and illustration:
+
+When you grab the A.I. Children's Book Maker today, we'll include Agency Rights, which means you can use it to create projects for clients. You can offer your writing and illustration services to other authors, publishers, or companies in any niche. These kind of projects can pay big bucks, and you can find gigs on sites like Freelancer, Upwork, and Fiverr. I also think there is a relatively untapped market right now for customized children's books. Think about it... you could create a unique children's book for a client, in which their own child is a character! That's a service that could command a serious payday.
+
+## Some of the people we expect to see enjoying A.I. Children's Book Maker 2500 include:
+
+Authors and Writers
+Aspiring Authors
+Pediatric Dentists
+Children's Charity Workers
+Children's Game Developers
+Foster Parents
+Social Media Influencers
+Pediatric Occupational Therapists
+Librarians
+School Counselors
+Teachers of children
+Foreign Language Majors
+English Majors
+Children's Art Teachers
+Coaches
+Elementary School Teachers
+Preschool Teachers
+Child Psychologists
+Pediatricians
+Pediatric Specialists
+Speech-Language Pathologists
+Social Workers
+School Nurses
+Child Welfare Officers
+Childcare Providers and Babysitters
+Art Therapists
+Children's Travel Tour Guides
+Children's Activity Coordinators
+Family Counselors
+Toy Designers
+Children's App Developers
+ESL Teachers
+Children's Song Writers
+Pediatric Health Bloggers
+School Principals
+Sunday School Teachers
+Early Childhood Educators
+Children's Music Producers
+Children's Cooking Show Hosts
+Nannies
+Youth Pastors
+Children's Puzzle Creators
+Gymnastics Instructors
+Children's Podcast Creators
+Youth Group Workers
+Children's TV Show Writers
+Parents
+Grandparents
+Children's Casting Agents
+Children's Radio Show Hosts
+Children's Magazine Editors
+Literary Agents for Children's Books
+Animation Scriptwriters
+Videogame Writers
+Professors of Children's Studies
+Children's Theatre Directors
+Children's Rights Advocates
+Child Safety Experts
+Creative Writing Instructors
+Children's Yoga Instructors
+Special Needs Educators
+Children's Fashion Designers
+Children's Clothing Creators
+Coaches of Kids' Sports Teams
+Cartoonists and Animators
+Children and Family Photographers
+Children's Film Directors
+Child Nutritionists
+Children's Museum Curators
+Puppeteers
+Children's Party Planners
+Language Translators
+Childhood Development Researchers
+Children's Board Game Creators
+Mom Bloggers
+Family Social Influencers
+Mommy Instagrammers and TikTokers
+Children's Craft Designers
+Childhood Historians
+Children's Choir Directors
+Children's Product Inventors
+Artists and Illustrators
+Bookstore owners
+Kids' Clothing Store Owners
+Infoproduct marketers
+Entrepreneurs
+Freelancers
+Internet business owners
+Child Advocacy Lawyers
+Pediatric Nurses
+Voice Actors for Children's Programs
+Students interested in A.I.
+School Bus Drivers
+Playground Designers
+Children's Entertainers
+Toy Store Owners
+Swimming Instructors
+Kids Hobby Class Instructors
+Children's Dance Teachers
+Petting Zoo Operators
+Daycare Center Owners
+Camp Counselors and Directors
+Children's Product Vendors
+Candy Store Owners
+Kids Martial Arts Instructors
+Children's Hair Stylists
+Children's Poets
+Children's Video Game Developers
+Children's Furniture Vendors
+Homeschool Parents
+Child Life Specialists
+YouTube Kids Content Creators
+Child Actors' Managers
+Children's Etiquette Instructors
+Adventure and Theme Park Operators
+Children's Music Teachers
+Children's Book Club Organizers
+Nature Camp Organizers
+Kindergarten Assistants
+Anyone who loves storytelling
